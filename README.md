@@ -2,8 +2,8 @@
 hello so like im learning how to code more so im gonna be updating my intro and stuff, i go by alot of online names like sam, sammerlol, oc9x97, blahblahviolet, etc.
 
 # Friends
-[bakersrule2020](https://www.github.com/bakersrule2020) - Great Coder
-[rblxdeve](https://github.com/rblxdeve) - Master Hacker
+[bakersrule2020](https://www.github.com/bakersrule2020) - Great Coder  
+[rblxdeve](https://github.com/rblxdeve) - Master Hacker  
 [tedmcbur](https://github.com/tedmcbur) - Decent  
   
 # What I Made  
